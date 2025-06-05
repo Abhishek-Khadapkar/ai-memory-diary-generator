@@ -1,1 +1,1 @@
-the projec link is inside the pdf 
+the project link is inside the pdf 
